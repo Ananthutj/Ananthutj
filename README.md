@@ -1,5 +1,5 @@
 # 💫About Me :
-I am Ananthu T J. Third year Information Technology Student at School of Engineering, CUSAT.
+I am Ananthu T J, final year Information Technology Student at School of Engineering, CUSAT.
 
 
 
